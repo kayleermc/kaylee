@@ -11,4 +11,4 @@ zo zacht als ~~scheerschuim~~ wolk
 # het resultaat
 [mijn website](https://kayleermc.github.io/kaylee/)
 
-gemaakt tijdens de les (:
+gemaakt tijdens de les :smiley:
